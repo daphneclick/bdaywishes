@@ -14,10 +14,7 @@ So record a video on your smartphone and send it to me by May 22nd, 3 PM Eastern
 1. Upload it directly here to my DropBox:
 https://www.dropbox.com/request/ISkFFhI7O28NcOPUa0yx
 
-3. Post it HERE publicly on *this* page.
-(DO NOT POST to my father's Facebook page)
-
-5. Message me a link to your video on your DropBox, Google Drive, iCloud Drive, or OneDrive account.
+2. Message me a link to your video on your DropBox, Google Drive, iCloud Drive, or OneDrive account.
 DO NOT POST VIDEO TO MY FATHER’S FACEBOOK PAGE
 
 If you think of someone who should be invited to record a video, please send me their name!
